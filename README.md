@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @NigerianCode
+- 👀 I’m interested in music
+- 🌱 I’m currently learning computer language
+- 💞️ I’m looking to collaborate with a record label
+- 📫 How to reach me isaacojiwuru@gmail.com
+- 😄 Pronouns: i sing on believe, expectations and experience
+- ⚡ Fun fact: i love music
